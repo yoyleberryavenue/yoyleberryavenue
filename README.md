@@ -16,5 +16,6 @@
 [![tumblr-4264ebb43d45a378fec74cefadee0c87-59670d88-250.webp](https://i.postimg.cc/PqvHJDyn/tumblr-4264ebb43d45a378fec74cefadee0c87-59670d88-250.webp)](https://postimg.cc/v1ykScC0) [![tumblr-0487f5ae2609dd98d8e47df6fac4af87-2d02ec82-250.webp](https://i.postimg.cc/hvp6p4s0/tumblr-0487f5ae2609dd98d8e47df6fac4af87-2d02ec82-250.webp)](https://postimg.cc/PvvSqjBL) [![tumblr-2e3779be24559c14e369e7ce237f9d35-f3b8510f-100.png](https://i.postimg.cc/L5YL0NBb/tumblr-2e3779be24559c14e369e7ce237f9d35-f3b8510f-100.png)](https://postimg.cc/PvHCCb7W)
 
 
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**art by @freakingpookie & @LeafYyy**
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**pc oriented**
