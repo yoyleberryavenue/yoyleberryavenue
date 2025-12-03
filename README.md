@@ -1,4 +1,4 @@
-[![Picsart_25_11_20_05_31_00_857.png](https://i.postimg.cc/t4c39MCY/Picsart_25_11_20_05_31_00_857.png)](https://postimg.cc/hX9zrMmB)
+[![Untitled489_20251203141916.png](https://i.postimg.cc/XvZ46Z2q/Untitled489_20251203141916.png)](https://postimg.cc/nst6vLff)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Picsart_25_11_20_04_59_11_624.png](https://i.postimg.cc/J0xVjmH1/Picsart_25_11_20_04_59_11_624.png)](https://postimg.cc/V0JVcxFT)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𓈒 ⠀cass ⠀⠀⠀◟⠀⠀⠀¹6⠀
@@ -7,4 +7,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**art by @numberserk and @marzmiro**
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀**pc oriented**
-[![Untitled490_20251120053314.png](https://i.postimg.cc/jqkd308N/Untitled490_20251120053314.png)](https://postimg.cc/3WmTW6QJ)
+[![Untitled489_20251203141931.png](https://i.postimg.cc/ydcKWMCs/Untitled489_20251203141931.png)](https://postimg.cc/hzD653G5)
