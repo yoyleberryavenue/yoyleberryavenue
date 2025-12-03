@@ -1,3 +1,4 @@
+erm wip because something's wrong with the banners
 [![Untitled489_20251203141916.png](https://i.postimg.cc/XvZ46Z2q/Untitled489_20251203141916.png)](https://postimg.cc/nst6vLff)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Picsart_25_11_20_04_59_11_624.png](https://i.postimg.cc/J0xVjmH1/Picsart_25_11_20_04_59_11_624.png)](https://postimg.cc/V0JVcxFT)
 
