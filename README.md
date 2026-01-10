@@ -1,1 +1,1 @@
-[![Pencil-Intro.webp](https://i.postimg.cc/Xq6W5bsy/Pencil-Intro.webp)](https://postimg.cc/wy2nKS86)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Untitled508_20260110034527.png](https://i.postimg.cc/gkdXFFG2/Untitled508_20260110034527.png)](https://postimg.cc/t7SCWc1K)
