@@ -1,4 +1,4 @@
-[![Untitled521-20260205125606.png](https://i.postimg.cc/288jLPCV/Untitled521-20260205125606.png)](https://postimg.cc/rz32vZ0k)
+⠀⠀⠀⠀⠀⠀[![Untitled521-20260205125606.png](https://i.postimg.cc/288jLPCV/Untitled521-20260205125606.png)](https://postimg.cc/rz32vZ0k)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Untitled508_20260110034527.png](https://i.postimg.cc/gkdXFFG2/Untitled508_20260110034527.png)](https://postimg.cc/t7SCWc1K)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀c*h encouraged𓈒⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀w2i freq𓈒⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀15- dni𓈒
@@ -6,4 +6,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**pfp by @shrubbyfrog**
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**pc oriented**
-[![Untitled521_20260205125618.png](https://i.postimg.cc/4ywJF1bB/Untitled521_20260205125618.png)](https://postimg.cc/K3kS1BWM)
+⠀⠀⠀⠀⠀⠀[![Untitled521_20260205125618.png](https://i.postimg.cc/4ywJF1bB/Untitled521_20260205125618.png)](https://postimg.cc/K3kS1BWM)
