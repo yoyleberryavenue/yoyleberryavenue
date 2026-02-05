@@ -5,6 +5,6 @@
 
 
 ⠀
-⠀⠀⠀⠀⠀⠀⠀⠀[![Untitled521_20260205125618.png](https://i.postimg.cc/4ywJF1bB/Untitled521_20260205125618.png)](https://postimg.cc/K3kS1BWM)
+⠀⠀⠀⠀⠀⠀⠀[![Untitled521_20260205125618.png](https://i.postimg.cc/4ywJF1bB/Untitled521_20260205125618.png)](https://postimg.cc/K3kS1BWM)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**pfp by @shrubbyfrog**
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**pc oriented**
