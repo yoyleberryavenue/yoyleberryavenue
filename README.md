@@ -1,5 +1,5 @@
 ***
-<img align="right" width="200" height="300" alt="image" src="https://i.postimg.cc/Sssv3kBv/Untitled544_20260306110208.png"/>
+<img align="right" width="255" height="300" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
 <p> $\color{Darkolivegreen}\Huge{\textsf{PONYTOWN INFO.}}$
