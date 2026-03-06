@@ -1,1 +1,1 @@
-WIP!!
+$\color{Darkolivegreen}{\textsf{WIP!!}}$
