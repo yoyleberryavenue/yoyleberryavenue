@@ -20,6 +20,6 @@ $\color{Darkolivegreen}\normalsize{\textsf{cosplayer main⠀⠀sleeping equals a
 
   $\color{Darkolivegreen}\normalsize{\textsf{pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{⠀racist⠀⠀yumes⠀⠀radqueer⠀⠀under 15}}$
+$\color{Darkolivegreen}\normalsize{\textsf{⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
 
 $\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
