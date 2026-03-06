@@ -4,11 +4,11 @@
 
 <p> $\color{Darkolivegreen}\Huge{\textsf{PONYTOWN INFO.}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{c*h heavily enc.}}$
+$\color{Darkolivegreen}\normalsize{\textsf{c*h heavily enc.⠀⠀w2i, offtab freq.}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{w2i, offtab freq.}}$
+$\color{Darkolivegreen}\normalsize{\textsf{wanderer⠀⠀in densely populated areas}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{don't be scared to int. i love meeting new ppl!! hiii!!}}$ </p>
+$\color{Darkolivegreen}\normalsize{\textsf{cosplayer main⠀⠀sleeping equals afk}}$ </p>
 
 ***
 
