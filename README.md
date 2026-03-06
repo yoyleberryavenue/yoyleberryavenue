@@ -1,5 +1,5 @@
 ***
-<img align="left" width="200" height="300" alt="image" src="https://i.postimg.cc/Sssv3kBv/Untitled544_20260306110208.png"/>
+<img align="right" width="200" height="300" alt="image" src="https://i.postimg.cc/Sssv3kBv/Untitled544_20260306110208.png"/>
 </br>
 
 <p> $\color{Darkolivegreen}\Huge{\textsf{PONYTOWN INFO.}}$
@@ -13,10 +13,10 @@ $\color{Darkolivegreen}\normalsize{\textsf{cosplayer main⠀⠀sleeping equals a
 ***
 
 
-<img align="right" width="255" height="300" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
+<img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
-<p> $\color{Darkolivegreen}\Huge{\textsf{DNI.}}$ 
+<p> $\color{Darkolivegreen}\Huge{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
 
   $\color{Darkolivegreen}\normalsize{\textsf{pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
 
