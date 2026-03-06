@@ -20,5 +20,6 @@ $\color{Darkolivegreen}\normalsize{\textsf{don't be scared to int. i love meetin
 
   $\color{Darkolivegreen}\normalsize{\textsf{pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{racist⠀⠀yumes⠀⠀irls}}$ <p>
+$\color{Darkolivegreen}\normalsize{\textsf{⠀racist⠀⠀yumes⠀⠀radqueer⠀⠀under 15}}$
 
+$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
