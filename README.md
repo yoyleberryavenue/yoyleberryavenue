@@ -8,7 +8,7 @@ $\color{Darkolivegreen}\normalsize{\textsf{⠀offtab freq⠀⠀cosplay main}}$
 
 $\color{Darkolivegreen}\normalsize{\textsf{⠀⠀c*h comf⠀⠀w2i pref}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀wanderer⠀⠀pls int!}}$ </p>
+$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀wanderer⠀⠀any int!}}$ </p>
 
 ***
 
