@@ -1,5 +1,5 @@
 <img align="center" width="300" height="300" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
-
+</br>
 
 ***
 <img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
@@ -29,3 +29,8 @@ $\color{Darkolivegreen}\normalsize{\textsf{⠀racist⠀⠀yume⠀⠀radqueer⠀�
 $\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
 
 ***
+
+
+<sub> best viewed on light mode </sub>
+⠀⠀⠀⠀<sub> art by @fishiistix </sub>
+⠀⠀⠀⠀<sub> pc oriented </sub>
