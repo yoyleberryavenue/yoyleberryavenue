@@ -31,5 +31,4 @@ $\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀⠀⠀⠀⠀i block/hide fre
 ***
 
 
-<sub> ⠀⠀**light mode rec** </sub>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub> **pc oriented** </sub>
+<sub> ⠀⠀**art⠀⠀by⠀⠀@fishiistixx** </sub>
