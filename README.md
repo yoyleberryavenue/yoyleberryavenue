@@ -5,13 +5,13 @@
 <img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
-<p align="left">$\color{Darkolivegreen}\Huge{\textsf{PONYTOWN INFO.}}$
+<p align="left">$\color{Darkolivegreen}\Huge{\textsf{PONYTOWN ⠀INFO.}}$
 
-<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀offtab freq⠀⠀cosplay main}}$
+<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀offtab freq⠀⠀cosplay main}}$
 
-<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀c*h comf⠀⠀w2i pref}}$
+<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀c*h comf⠀⠀w2i pref}}$
 
-<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀wanderer⠀⠀any int!}}$ </p>
+<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀wanderer⠀⠀any int!}}$ </p>
 
 
 ***
