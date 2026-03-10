@@ -33,4 +33,4 @@ $\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀⠀⠀⠀⠀i block/hide fre
 
 <sub> best viewed on light mode </sub>
 ⠀⠀⠀⠀<sub> art by @fishiistix </sub>
-⠀⠀⠀⠀<sub> pc oriented </sub>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub> pc oriented </sub>
