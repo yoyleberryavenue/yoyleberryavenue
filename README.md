@@ -7,7 +7,7 @@ $\color{Darkolivegreen}\Huge{\textsf{⠀LYNN}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$
+$\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 ***
 <img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
@@ -15,11 +15,11 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$
 
 <p align="left">$\color{Darkolivegreen}\Huge{\textsf{PONYTOWN ⠀INFO.}}$
 
-<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀offtab freq⠀⠀cosplay main}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀offtab freq⠀⠀cosplay main}}$
 
-<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀c*h comf⠀⠀w2i pref}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀c*h comf⠀⠀w2i pref}}$
 
-<p align="left">$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀wanderer⠀⠀any int!}}$ </p>
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀wanderer⠀⠀any int!}}$ </p>
 
 
 ***
@@ -30,11 +30,11 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$
 
 <p> $\color{Darkolivegreen}\Huge{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
 
-  $\color{Darkolivegreen}\normalsize{\textsf{pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
+  $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
+$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
 
-$\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
+$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
 
 ***
 
