@@ -1,4 +1,4 @@
-<img align="right" width="300" height="300" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
+<img align="left" width="300" height="300" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
 </br> 
 
 <p> $\color{Olive}\Huge{\textsf{TIZ⠀}}$
