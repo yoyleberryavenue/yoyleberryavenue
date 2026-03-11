@@ -1,4 +1,4 @@
-<img align="left" width="300" height="300" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
+<img align="left" width="250" height="250" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
 </br> 
 
 <p> $\color{Darkolivegreen}\Huge{\textsf{TIZ⠀}}$
@@ -10,7 +10,7 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
 $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 $\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
-<img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
+<img align="left" width="210" height="255" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
 <p align="left">$\color{Darkolivegreen}\large{\textsf{PONYTOWN ⠀INFO.}}$
@@ -25,7 +25,7 @@ $\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - 
 $\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
 
 
-<img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
+<img align="left" width="210" height="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
 <p> $\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
