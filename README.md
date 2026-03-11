@@ -1,6 +1,9 @@
 <img align="left" width="250" height="250" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
 </br> 
 
+<table>
+  <tr>
+    <th>
 <p> $\color{Darkolivegreen}\Huge{\textsf{TIZ⠀}}$
 $\color{Darkolivegreen}\normalsize{\textsf{or}}$
 $\color{Darkolivegreen}\Huge{\textsf{⠀LYNN}}$
@@ -8,6 +11,9 @@ $\color{Darkolivegreen}\Huge{\textsf{⠀LYNN}}$
 $\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
+    </th>
+  </tr>
+</table>
 
 $\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
 <img align="left" width="210" height="255" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
