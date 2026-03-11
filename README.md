@@ -9,7 +9,7 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
-$\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
+$\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
 <img align="left" width="210" height="255" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
