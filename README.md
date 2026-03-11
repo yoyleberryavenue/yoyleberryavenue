@@ -9,34 +9,34 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
-***
+$\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
 <img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
-<p align="left">$\color{Darkolivegreen}\Huge{\textsf{PONYTOWN ⠀INFO.}}$
+<p align="left">$\color{Darkolivegreen}\large{\textsf{PONYTOWN ⠀INFO.}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀offtab freq⠀⠀cosplay main}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀offtab freq⠀⠀cosplay main}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀c*h comf⠀⠀w2i pref}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀c*h comf⠀⠀w2i pref}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀wanderer⠀⠀any int!}}$ </p>
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀wanderer⠀⠀any int!}}$ </p>
 
 
-***
+$\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - }}$ <p>
 
 
 <img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
-<p> $\color{Darkolivegreen}\Huge{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
+<p> $\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
 
-  $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
+  $\color{Darkolivegreen}\small{\textsf{⠀pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
+$\color{Darkolivegreen}\small{\textsf{⠀⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
+$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
 
-***
+$\color{Darkolivegreen}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
 
 
 <sub> ⠀⠀⠀⠀⠀art⠀⠀⠀⠀⠀⠀by⠀⠀⠀⠀⠀⠀@fishiistixx </sub>
