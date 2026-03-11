@@ -1,5 +1,13 @@
-<img align="center" width="300" height="300" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
-</br>
+<img align="right" width="300" height="300" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
+</br> 
+
+<p> $\color{Darkolivegreen}\Huge{\textsf{TIZ⠀}}$
+$\color{Darkolivegreen}\normalsize{\textsf{or}}$
+$\color{Darkolivegreen}\Huge{\textsf{⠀LYNN}}$
+
+$\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
+
+$\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$
 
 ***
 <img align="left" width="255" height="300" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
@@ -31,4 +39,4 @@ $\color{Darkolivegreen}\normalsize{\textsf{⠀⠀⠀⠀⠀⠀⠀i block/hide fre
 ***
 
 
-<sub> ⠀⠀⠀⠀⠀art⠀⠀⠀⠀by⠀⠀⠀⠀@fishiistixx </sub>
+<sub> ⠀⠀⠀⠀⠀art⠀⠀⠀⠀⠀⠀by⠀⠀⠀⠀⠀⠀@fishiistixx </sub>
