@@ -37,6 +37,3 @@ $\color{Olive}\small{\textsf{⠀⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}
 $\color{Olive}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
 
 $\color{Olive}\large{\textsf{- - - - - - - - - - - - - - - - - - - - - - - - - - - -}}$ <p>
-
-
-<sub> ⠀⠀⠀⠀⠀art⠀⠀⠀⠀⠀⠀by⠀⠀⠀⠀⠀⠀@fishiistixx </sub>
