@@ -1,3 +1,4 @@
+***
 <img align="left" width="250" height="250" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
 </br> 
 
@@ -30,10 +31,11 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 <p> $\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
 
+
   $\color{Darkolivegreen}\small{\textsf{⠀pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely}}$ <p>
 
-
+***
