@@ -22,11 +22,11 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀c*h comf⠀⠀w2i pref}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀wanderer⠀⠀any int!}}$ </p>
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀traveler⠀⠀any int!}}$ </p>
 ⠀
 ⠀
 ⠀
-<img align="left" width="210" height="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
+<img width="210" height="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
 <p> $\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
