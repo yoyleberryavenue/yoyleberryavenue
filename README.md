@@ -26,7 +26,7 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 ⠀
 ⠀
 ⠀
-<img width="210" height="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
+<img width="215" height="210" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
 <p> $\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
