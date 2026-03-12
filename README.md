@@ -22,7 +22,7 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀c*h comf⠀⠀w2i pref}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀traveler⠀⠀any int!}}$ </p>
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀traveler⠀⠀any int!}}$ </p>
 ⠀
 ⠀
 ⠀
