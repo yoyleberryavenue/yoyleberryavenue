@@ -26,10 +26,10 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 ⠀
 ⠀
 ⠀
-<img width="215" height="210" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
+<img align="left" width="215" height="210" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
-<p> $\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
+<p> $\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀ ⠀DNI.}}$ 
 
 
   $\color{Darkolivegreen}\small{\textsf{⠀pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
