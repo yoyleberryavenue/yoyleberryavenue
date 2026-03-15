@@ -11,7 +11,6 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 ⠀
-⠀
 <img align="left" width="200" height="240" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
@@ -22,7 +21,6 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀ ⠀c*h comf⠀⠀w2i pref}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
-⠀
 ⠀
 <img width="210" height="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
