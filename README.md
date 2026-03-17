@@ -32,6 +32,6 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀ radqueer⠀⠀15-}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely⠀...}}$ </p>
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀i block/hide freely}}$ </p>
 
 ***
