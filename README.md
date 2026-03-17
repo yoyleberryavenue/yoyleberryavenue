@@ -15,9 +15,9 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 <p align="left">$\color{Darkolivegreen}\large{\textsf{PONYTOWN ⠀INFO.}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀offtab freq⠀⠀cosplay main}}$
-
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀ ⠀c*h comf⠀⠀w2i pref}}$
+
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀offtab freq⠀⠀cosplay main}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
 <img align="left" width="210" height="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
