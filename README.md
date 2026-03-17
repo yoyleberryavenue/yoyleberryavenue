@@ -26,9 +26,9 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <p align="right">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀ ⠀DNI.}}$ 
 
 
-<p align="right">$\color{Darkolivegreen}\small{\textsf{⠀pro/darkshipper⠀⠀shotacon⠀⠀lgbtqphobe}}$
+<p align="right">$\color{Darkolivegreen}\small{\textsf{⠀pro/darkshipper⠀⠀racist⠀⠀lgbtqphobe}}$
 
-<p align="right">$\color{Darkolivegreen}\small{\textsf{⠀⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
+<p align="right">$\color{Darkolivegreen}\small{\textsf{⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
 
 <p align="right">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely⠀...}}$ </p>
 
