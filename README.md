@@ -23,12 +23,12 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <img align="left" width="210" height="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
-<p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀DNI.}}$ 
+<p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀DNI.}}$ 
 
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀proshipper⠀⠀shotacon}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀proshipper⠀⠀racist}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀racist⠀⠀yume⠀⠀radqueer⠀⠀under 15}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀yume⠀⠀radqueer⠀⠀15-}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀i block/hide freely⠀...}}$ </p>
 
