@@ -34,3 +34,4 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 
 ⠀
 ***
+HOW DO I GET RID OF THJE GRAY. BOX
