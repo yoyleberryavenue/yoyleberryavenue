@@ -7,7 +7,7 @@
 $\color{Darkolivegreen}\normalsize{\textsf{or}}$
 $\color{Darkolivegreen}\Huge{\textsf{⠀LYNN}}$
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀16y⠀⠀⠀she⠀·⠀her}}$
+$\color{Darkolivegreen}\small{\textsf{⠀⠀17yrs⠀⠀⠀she⠀·⠀her}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <img align="left" width="200" height="240" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
