@@ -1,6 +1,6 @@
 [![Untitled34-20260514133216.png](https://i.postimg.cc/wvJJbRKD/Untitled34-20260514133216.png)](https://postimg.cc/qhJzNRv7)
 
-<img align="left" width="245" height="205" alt="image" src="[![Untitled541-20260309005616.png](https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png)](https://postimg.cc/t1P1kLqf)"/>
+<img align="left" width="245" height="205" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/>
 </br> 
 
 
