@@ -1,6 +1,6 @@
-[![gh-o1-𓈒-20260514130040.png](https://i.postimg.cc/QtKhJXrt/gh-o1-𓈒-20260514130040.png)](https://postimg.cc/9R26WH05)
+[![Untitled34-20260514132143.png](https://i.postimg.cc/3RwN2MLh/Untitled34-20260514132143.png)](https://postimg.cc/XZTn0PS1)
 
-<img align="left" width="245" height="205" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541_20260309005616.png"/>
+<img align="left" width="245" height="205" alt="image" src="[![Untitled541-20260309005616.png](https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png)](https://postimg.cc/t1P1kLqf)"/>
 </br> 
 
 
