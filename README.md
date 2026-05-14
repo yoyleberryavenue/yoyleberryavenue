@@ -21,7 +21,7 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀offtab freq⠀⠀cosplay main}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
-<img align="left" width="230" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
+<img align="left" width="220" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
 <p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀DNI.}}$ 
