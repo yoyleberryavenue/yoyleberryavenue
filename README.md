@@ -1,4 +1,4 @@
-[![Untitled34-20260514132143.png](https://i.postimg.cc/3RwN2MLh/Untitled34-20260514132143.png)](https://postimg.cc/XZTn0PS1)
+[![Untitled34-20260514133216.png](https://i.postimg.cc/wvJJbRKD/Untitled34-20260514133216.png)](https://postimg.cc/qhJzNRv7)
 
 <img align="left" width="245" height="205" alt="image" src="[![Untitled541-20260309005616.png](https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png)](https://postimg.cc/t1P1kLqf)"/>
 </br> 
@@ -34,5 +34,6 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀ radqueer⠀⠀15-}}$
 
 ⠀
-***
+[![Untitled34-20260514133312.png](https://i.postimg.cc/4yQcXCx6/Untitled34-20260514133312.png)](https://postimg.cc/wR3MkGJM)
+
 under construction ... again
