@@ -1,6 +1,6 @@
 [![Untitled34-20260514133841.png](https://i.postimg.cc/P5jtmLKN/Untitled34-20260514133841.png)](https://postimg.cc/4mWkGxDT)
 
-<img align="left" width="245" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/>
+<img align="left" width="265" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/>
 </br> 
 
 
@@ -11,7 +11,7 @@ $\color{Darkolivegreen}\Huge{\textsf{⠀LYNN}}$
 $\color{Darkolivegreen}\small{\textsf{⠀⠀17yrs⠀⠀⠀she⠀·⠀her}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
-<img align="left" width="200" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
+<img align="left" width="220" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
 <p align="left">$\color{Darkolivegreen}\large{\textsf{PONYTOWN ⠀INFO.}}$
@@ -21,7 +21,7 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀offtab freq⠀⠀cosplay main}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
-<img align="left" width="210" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
+<img align="left" width="230" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
 </br>
 
 <p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀DNI.}}$ 
