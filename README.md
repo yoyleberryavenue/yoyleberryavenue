@@ -4,13 +4,13 @@
 </br> 
 
 
-<p> $\color{Darkolivegreen}\Huge{\textsf{TIZ⠀}}$
+<p> $\color{Darkolivegreen}\Huge{\textsf{YOYLE⠀}}$
 $\color{Darkolivegreen}\normalsize{\textsf{or}}$
-$\color{Darkolivegreen}\Huge{\textsf{⠀LYNN}}$
+$\color{Darkolivegreen}\Huge{\textsf{⠀DOT}}$
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀17yrs⠀⠀⠀she⠀·⠀her}}$
+$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀17yrs⠀⠀⠀she⠀·⠀her}}$
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
+$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
 <img align="left" width="200" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
 </br>
 
