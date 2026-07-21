@@ -1,38 +1,28 @@
-[![Untitled34-20260514133841.png](https://i.postimg.cc/P5jtmLKN/Untitled34-20260514133841.png)](https://postimg.cc/4mWkGxDT)
-
-<img align="left" width="245" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/>
-</br> 
-
-
-<p> $\color{Darkolivegreen}\Huge{\textsf{YOYLE⠀}}$
+<img align="left" width="245" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/> <img align="right" width="245" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/>
+<details>
+<summary>      <p> $\color{Darkolivegreen}\Huge{\textsf{YOYLE⠀}}$
 $\color{Darkolivegreen}\normalsize{\textsf{or}}$
-$\color{Darkolivegreen}\Huge{\textsf{⠀DOT}}$
+$\color{Darkolivegreen}\Huge{\textsf{⠀DOTTIE}}$</summary>
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀17yrs⠀⠀⠀she⠀·⠀her}}$
+  $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀17yrs⠀⠀⠀she⠀·⠀her}}$
 
-$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ </p>
-<img align="left" width="200" alt="image" src="https://i.postimg.cc/SsCsRkBC/Untitled547_20260306174503.png"/>
-</br>
+$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$</p>
+</details>
 
-<p align="left">$\color{Darkolivegreen}\large{\textsf{PONYTOWN ⠀INFO.}}$
-
+<details>
+<summary>      <p align="left">$\color{Darkolivegreen}\large{\textsf{PONYTOWN ⠀INFO.}}$</summary>
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀ ⠀c*h comf⠀⠀w2i pref}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀offtab freq⠀⠀cosplay main}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
-<img align="left" width="200" alt="image" src="https://i.postimg.cc/3x5yrZZN/Untitled546_20260306121211.png"/>
-</br>
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
+</details>
 
-<p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀DNI.}}$ 
-
-
+<details>
+<summary>      <p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀DNI.}}$</summary>
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀proshipper⠀⠀racist}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀lgbtqphobe⠀⠀yume}}$
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀ radqueer⠀⠀15-}}$
-
-⠀
-[![Untitled34-20260514133312.png](https://i.postimg.cc/4yQcXCx6/Untitled34-20260514133312.png)](https://postimg.cc/wR3MkGJM)
-REMAKING!!
+</details>
