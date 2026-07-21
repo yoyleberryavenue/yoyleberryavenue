@@ -15,7 +15,7 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀ar
 
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀offtab freq⠀⠀cosplay main}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
 </details>
 
 
