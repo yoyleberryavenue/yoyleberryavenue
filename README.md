@@ -1,4 +1,4 @@
-<img align="left" width="245" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/> <img align="right" width="245" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/>
+<img align="left" width="245" alt="image" src="https://i.postimg.cc/KYpnG2dZ/Untitled541-20260309005616.png"/> 
 <details>
 <summary>      <p> $\color{Darkolivegreen}\Huge{\textsf{YOYLE⠀}}$
 $\color{Darkolivegreen}\normalsize{\textsf{or}}$
