@@ -1,4 +1,5 @@
-<img align="left" width="245" alt="image" src="https://i.postimg.cc/gc6F7LH8/Untitled90-20260721153733.png"/> 
+<img align="left" width="245" alt="image" src="https://i.postimg.cc/gc6F7LH8/Untitled90-20260721153733.png"/> <img align=right width="150" alt="image" src="https://i.postimg.cc/ZY1Bk3tq/Untitled91-20260721154952.png"/> 
+
 <details>
 <summary>      <p> $\color{Darkolivegreen}\Huge{\textsf{YOYLE⠀}}$
 $\color{Darkolivegreen}\normalsize{\textsf{or}}$
@@ -21,11 +22,9 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀ar
 
 <details>
 <summary>      <p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀DNI.}}$</summary>
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀proshipper⠀⠀racist}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀proshipper⠀⠀racist}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀lgbtqphobe⠀⠀yume}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀lgbtqphobe⠀⠀yume}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀radqueer⠀⠀16-}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀radqueer⠀⠀16-}}$
 </details>
-
-<img align=right width="100" alt="image" src="https://i.postimg.cc/ZY1Bk3tq/Untitled91-20260721154952.png"/> 
