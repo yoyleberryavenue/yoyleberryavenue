@@ -35,3 +35,4 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$ <
 
 ⠀
 [![Untitled34-20260514133312.png](https://i.postimg.cc/4yQcXCx6/Untitled34-20260514133312.png)](https://postimg.cc/wR3MkGJM)
+REMAKING!!
