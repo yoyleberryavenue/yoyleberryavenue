@@ -28,4 +28,4 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀ar
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀radqueer⠀⠀16-}}$
 </details>
 
-<img align=right alt="image" src="https://i.postimg.cc/ZY1Bk3tq/Untitled91-20260721154952.png"/> 
+<img align=right width="100" alt="image" src="https://i.postimg.cc/ZY1Bk3tq/Untitled91-20260721154952.png"/> 
