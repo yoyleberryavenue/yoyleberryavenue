@@ -7,7 +7,7 @@ $\color{Darkolivegreen}\Huge{\textsf{⠀DOTTIE}}$</summary>
   $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀17yrs⠀⠀⠀she⠀·⠀her}}$
 
 $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀aro}}$</p>
-</details>
+</details> 
 
 <details>
 <summary>      <p align="left">$\color{Darkolivegreen}\large{\textsf{PONYTOWN ⠀INFO.}}$</summary>
@@ -18,11 +18,12 @@ $\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀adhd⠀⠀⠀blk⠀⠀⠀ar
 <p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀traveler⠀⠀any int!⠀...}}$ </p>
 </details>
 
+
 <details>
 <summary>      <p align="left">$\color{Darkolivegreen}\large{\textsf{⠀⠀⠀DNI.}}$</summary>
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀proshipper⠀⠀racist}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀proshipper⠀⠀racist}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀lgbtqphobe⠀⠀yume}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀lgbtqphobe⠀⠀yume}}$
 
-<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀ radqueer⠀⠀15-}}$
+<p align="left">$\color{Darkolivegreen}\small{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀radqueer⠀⠀16-}}$
 </details>
